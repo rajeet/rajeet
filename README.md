@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **mangratirajit@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1yhJ8TOcFPmBt6KiHSEENm-e-PtGFJ8m2/edit?usp=sharing&ouid=106758893187160092166&rtpof=true&sd=true](https://docs.google.com/document/d/1yhJ8TOcFPmBt6KiHSEENm-e-PtGFJ8m2/edit?usp=sharing&ouid=106758893187160092166&rtpof=true&sd=true)
+- 📄 Know about my experiences [here...](https://drive.google.com/file/d/1ci4YgvNiNMTy1VnIzNGTM44b8DotJ0_A/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
